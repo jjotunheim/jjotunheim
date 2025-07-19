@@ -1,7 +1,9 @@
 :✧˖°࿐
 
 <!--
-**jjotunheim/jjotunheim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**jjotunheim/jjotunheim**[Screenshot_20250713-215742_Pinterest](https://github.com/user-attachments/assets/037abdc1-e5d9-49a6-8e46-1775224fd8f1)
+✨ _special_ ✨ repository becau![Screenshot_20250713-215742_Pinterest](https://github.com/user-attachments/assets/60d20592-5ae6-41a1-b3c6-e61a8c24b349)
+se its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
