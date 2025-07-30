@@ -1,3 +1,2 @@
-  ✧˖°࿐
-![Image](https://github.com/user-attachments/assets/d2aae1c0-27bf-436b-8195-db05b73d55d8)
-    𓅓
+![Image](https://github.com/user-attachments/assets/06a290e3-9e6d-45ec-afaf-eef0b34d111c)
+me OK??
